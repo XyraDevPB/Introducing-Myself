@@ -2,7 +2,7 @@
 
 Hi, I'm Xyra!
 
-I'm 17 years old.
+I'm 19 years old.
 
 I am one of the users in Turkiye who has been making mods in Brawl Stars for 3 years.  
 
